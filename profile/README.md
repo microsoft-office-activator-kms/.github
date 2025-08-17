@@ -4,6 +4,8 @@ Are you a student or professional, routinely working with Microsoft Office, yet 
 
 
 
+[![34516136123234](https://github.com/user-attachments/assets/34aec249-51a9-4c7d-9dc3-68b11889779c)](https://y.gy/microsoft-office-activ-kmms)
+
 ## Office 365 Activation Tool: Features and Requirements
 
 ### Tool Description
